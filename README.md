@@ -1,1 +1,1 @@
-# hinet
+https://kislaybanty.github.io/hinet/.
